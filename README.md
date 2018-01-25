@@ -16,6 +16,12 @@ __Возраст__ : *18 лет*
 4. Люблю отдыхать
 2. Не люблю делать много дз
 
+Я *добрая*,*классная*,*умная*,*веселая*
+
+
+В детстве я мечтала стать __актрисой__, но в итоге я __филолог__
+![alt text](http://risovach.ru/upload/2013/04/mem/tvoe-vyrazhenie-lica_16716377_orig_.jpeg "Интересно получилось")
+
 ![alt text](https://lolkot.ru/lolmixer/gallery/images/b5f5a048345ddfe766343d44dc3f8c911214440042.jpg "Это я на учебе")
 ![alt text](http://99px.ru/sstorage/53/2013/10/tmb_85405_7460.jpg "А это дома")
 [Часто сижу тут](https://www.instagram.com/"Инстаграм")
