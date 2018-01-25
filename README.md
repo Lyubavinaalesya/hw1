@@ -20,6 +20,9 @@ __Возраст__ : *18 лет*
 ![alt text](http://99px.ru/sstorage/53/2013/10/tmb_85405_7460.jpg "А это дома")
 [Часто сижу тут](https://www.instagram.com/"Инстаграм")
 
+Мечтаю поехать в __Англию__
+![alt text](https://www.votpusk.ru/country/ctimages/new/GB01.jpg)
+
 [Я учусь в ВШЭ](https://www.hse.ru/)
 
 __Расписание на понедельник__
